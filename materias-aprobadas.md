@@ -1,4 +1,4 @@
-# Plan de Estudios: Ciclos I al V
+# Materias Aprobadas: Ciclos I al V
 
 ## Ciclo I
 

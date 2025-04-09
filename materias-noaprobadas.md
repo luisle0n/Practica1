@@ -1,4 +1,4 @@
-# Plan de Estudios: Ciclos VI, VII , VIII Y IX
+# Materias No Aprobadas: Ciclos VI, VII , VIII Y IX
 
 ## Ciclo VI
 
